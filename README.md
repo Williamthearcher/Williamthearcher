@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Williamthearcher
 - 👀 I’m interested in interests
 - 🌱 I’m currently learning currency
-- 💞️ I’m looking to collaborate on aollaboration
+- 💞️ I’m looking to collaborate on collaboration
 - 📫 How to reach me you cant
 - 😄 Pronouns: pro
 - ⚡ Fun fact: When you are boring, everything is fun
